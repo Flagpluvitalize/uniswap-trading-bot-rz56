@@ -1,4 +1,4 @@
-# 
+# Get the ultimate isolated-margin trading bot with isolated-margin trading bot professional Bot - grid-trading and price-monitoring. Featuring grid-trading and price-monitoring,
 
 
 
